@@ -1,2 +1,2 @@
 Welcome to the greatest skills academy.
-You are now witness!
+You are now a witness!
